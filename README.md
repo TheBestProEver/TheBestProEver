@@ -2,4 +2,3 @@
 - 👀 I’m interested in having fun
 - 🌱 I’m currently learning time management
 - 📫 How to reach me: You don't
-- ⚡ Fun fact: For every 60 seconds that pass in Africa, a minute passes in the US.
