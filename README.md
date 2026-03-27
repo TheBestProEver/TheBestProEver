@@ -1,4 +1,1 @@
 - 👋 Hi, I’m @TheBestProEver
-- 👀 I’m interested in having fun
-- 🌱 I’m currently learning time management
-- 📫 How to reach me: You don't
